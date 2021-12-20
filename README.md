@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on websites
 - 📫 How to reach me i guess send me a message or send me an email at sjurhbrinck@gmail.com it might take a while for me to answer
 
-domt underestimate me because of my join date i lost my imail so i had to make a new github
+domt underestimate me because of my join date i lost my email so i had to make a new github
